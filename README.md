@@ -1,5 +1,9 @@
 <div align="center">
 
+
+<img width="735" height="245" alt="muy bien! aqui vamos con la 2 parte de imagenes bakushima bueno- son … #fanfiction # Fanfiction # amreading # books # wattpad" src="https://github.com/user-attachments/assets/be45883f-98ed-4a5a-9c48-3df58484bfa7" />
+
+
 ${\space}$
 
 <img width="508" height="642" alt="krbkkidstinted" src="https://github.com/user-attachments/assets/69bb3a25-8b7b-4e0c-af4b-4f371b088d7c" />
